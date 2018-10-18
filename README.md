@@ -13,3 +13,6 @@ L'agent de vol lui dit que le dragon etait pressé car il devait aller chercher 
 L'aigle géant lui dit que le dragon avait renversé un cannari et que celui-ci était mort.
 
 Ce malheureux incident généra d'énormes embarras de circulations sur l'autoroute du Ciel. Un peu plus tard, un journaliste de la Gazette Cumulus vola sur place pour interviewer les différents intervenants.
+*"Que s'est-il passé ?!"* s'exclama-t-il !
+*"Mon patron à besoin d'un scoop, et c'est un sujet parfait pour une promotion de surcroît !"* cria t-il de toutes ses forces en tendant le micro vers les témoins.
+Il fût fixé par une foule de regard à l'instant même où ces paroles sortirent de sa bouche.
