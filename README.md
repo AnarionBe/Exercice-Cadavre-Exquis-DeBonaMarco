@@ -21,3 +21,7 @@ Il fût fixé par une foule de regard à l'instant même où ces paroles sortire
 *"Quelle honte !"* s'exclamèrent certains.
 *"Moi ! J'ai tout vu !"* s'écrièrent d'autres.
 Pendant ce temps, le corps du canari gisait toujours sur le sol dans une marre de son propre sang.
+
+Le chevalier fait la rencontre d'un vieux, mystérieux, parce que les vieux c'est mystèrieux.
+
+Et le vieux bah il dit rien, forcément puisqu'il est vieux. Mais il tend au chevalier un bocal à anchois qui, si Joseph d'Arimathie a pas été trop con, doit surement être le **Graal**.
