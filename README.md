@@ -16,3 +16,8 @@ Ce malheureux incident généra d'énormes embarras de circulations sur l'autoro
 *"Que s'est-il passé ?!"* s'exclama-t-il !
 *"Mon patron à besoin d'un scoop, et c'est un sujet parfait pour une promotion de surcroît !"* cria t-il de toutes ses forces en tendant le micro vers les témoins.
 Il fût fixé par une foule de regard à l'instant même où ces paroles sortirent de sa bouche.
+
+
+*"Quelle honte !"* s'exclamèrent certains.
+*"Moi ! J'ai tout vu !"* s'écrièrent d'autres.
+Pendant ce temps, le corps du canari gisait toujours sur le sol dans une marre de son propre sang.
