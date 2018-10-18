@@ -9,3 +9,4 @@ Il lui demanda comment s'appelait le dragon et lui expliqua ce qui c'etait pass�
 L'agent de vol lui dit que le dragon etait pressé car il devait aller chercher ses enfants à l'école.
 L'aigle géant lui dit que le dragon avait renversé un cannari et que celui-ci était mort.
 ![Un cannari mort](http://www.adornato.com/the_dead_canaries/dead_canary_logo.jpg)
+Ce malheureux incident généra d'énormes embarras de circulations sur l'autoroute du Ciel. Un peu plus tard, un journaliste de la Gazette Cumulus vola sur place pour interviewer les différents intervenants.
