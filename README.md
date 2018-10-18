@@ -27,3 +27,6 @@ _**Reculez** ! Reculez tous* cria Sherlock Holmes qui venait d'arriver sur la sc
 Le chevalier fait la rencontre d'un vieux, mystérieux, parce que les vieux c'est mystèrieux.
 
 Et le vieux bah il dit rien, forcément puisqu'il est vieux. Mais il tend au chevalier un bocal à anchois qui, si Joseph d'Arimathie a pas été trop con, doit surement être le **Graal**.
+
+Ce n'est que deux heures plus tard que les charognards _croque-morts volants_ commencèrent à grignoter la dépouille exsangue du canari. Bien planqués, les aiguilleurs du ciel qui avaient fait leur boulot commen des manches,
+ne la ramenèrent pas quand les poulets en uniforme vinrent les cuisiner ... à propos d'un vol d'anchois.
