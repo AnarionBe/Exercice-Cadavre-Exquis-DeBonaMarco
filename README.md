@@ -21,3 +21,5 @@ Il fût fixé par une foule de regard à l'instant même où ces paroles sortire
 *"Quelle honte !"* s'exclamèrent certains.
 *"Moi ! J'ai tout vu !"* s'écrièrent d'autres.
 Pendant ce temps, le corps du canari gisait toujours sur le sol dans une marre de son propre sang.
+
+_**Reculez** ! Reculez tous* cria Sherlock Holmes qui venait d'arriver sur la scène... *Laissez passer l'inspecteur !_
