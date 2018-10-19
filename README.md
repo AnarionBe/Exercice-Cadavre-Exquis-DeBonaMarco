@@ -27,3 +27,7 @@ _**Reculez** ! Reculez tous* cria Sherlock Holmes qui venait d'arriver sur la sc
 Le chevalier fait la rencontre d'un vieux, mystérieux, parce que les vieux c'est mystèrieux.
 
 Et le vieux bah il dit rien, forcément puisqu'il est vieux. Mais il tend au chevalier un bocal à anchois qui, si Joseph d'Arimathie a pas été trop con, doit surement être le **Graal**.
+
+La vielle lui donna aussi un vieux drap tout cra-cra dans lequel il y avait des vieux clou tout pourri
+
+-A Kadok ?!
