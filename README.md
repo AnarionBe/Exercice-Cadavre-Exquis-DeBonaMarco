@@ -37,3 +37,5 @@ Watson arriva à ce moment-là. Il était déçu d'observer que les charognards 
 L'odeur salée de la mort lui rappelait sa tante, avec laquelle il aimait partager un thé matcha lorsqu'il était au collège. 
 
 Soudain le __ciel__ s'ouvrit et des __trompettes__ se mirent à jouer. Un _**rayon de lumière**_ vint se poser sur le petit canari et celui-ci ouvrit le yeux. Il aggripa le bocal d'anchois et mangea goulûment.
+
+_Sans fautes (Je pense :))_
