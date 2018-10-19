@@ -44,5 +44,3 @@ _Sans fautes (Je pense :))_
 
 Ce canari s'appelait *Johny*. Et c'est triste, parce qu'il était attendu pour un *concert d'enfer* !
 Concert auquel se rendait le dragon, qui attérit à côté de lui en *pleurant...*
-
->>>>>>> ajout-bene
