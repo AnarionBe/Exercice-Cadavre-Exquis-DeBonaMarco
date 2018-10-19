@@ -38,4 +38,8 @@ L'odeur salée de la mort lui rappelait sa tante, avec laquelle il aimait partag
 
 Soudain le __ciel__ s'ouvrit et des __trompettes__ se mirent à jouer. Un _**rayon de lumière**_ vint se poser sur le petit canari et celui-ci ouvrit le yeux. Il aggripa le bocal d'anchois et mangea goulûment.
 
+<<<<<<< HEAD
 "Ne mange pas ce bocal d'anchois, malheureux!" Le canari, en mangeant ce bocal d'anchois, avait déclenché le jour du Jugement dernier **...**
+=======
+"Malheureux, ne mange pas ces anchois!" l'entourage du canari sembla commencer à imploser. En ouvrant le bocal d'anchois, le canari déclencha le jour du jugement dernier.
+>>>>>>> developpement
