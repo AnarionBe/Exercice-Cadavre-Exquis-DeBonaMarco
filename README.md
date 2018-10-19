@@ -33,7 +33,9 @@ La vielle lui donna aussi un vieux drap tout cra-cra dans lequel il y avait des 
 Ce n'est que deux heures plus tard que les charognards _croque-morts volants_ commencèrent à grignoter la dépouille exsangue du canari. Bien planqués, les aiguilleurs du ciel qui avaient fait leur boulot commen des manches,
 ne la ramenèrent pas quand les poulets en uniforme vinrent les cuisiner ... à propos d'un vol d'anchois.
 
-Watson arriva à ce moment-là. Il était déçu d'observer que les charognards avaient déjà entamé la dépouille du canari. 
-L'odeur salée de la mort lui rappelait sa tante, avec laquelle il aimait partager un thé matcha lorsqu'il était au collège. 
+Watson arriva à ce moment-là. Il était déçu d'observer que les charognards avaient déjà entamé la dépouille du canari.
+L'odeur salée de la mort lui rappelait sa tante, avec laquelle il aimait partager un thé matcha lorsqu'il était au collège.
 
 Soudain le __ciel__ s'ouvrit et des __trompettes__ se mirent à jouer. Un _**rayon de lumière**_ vint se poser sur le petit canari et celui-ci ouvrit le yeux. Il aggripa le bocal d'anchois et mangea goulûment.
+
+"Ne mange pas ce bocal d'anchois, malheureux!" Le canari, en mangeant ce bocal d'anchois, avait déclenché le jour du Jugement dernier **...**
