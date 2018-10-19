@@ -31,3 +31,7 @@ Et le vieux bah il dit rien, forcément puisqu'il est vieux. Mais il tend au che
 La vielle lui donna aussi un vieux drap tout cra-cra dans lequel il y avait des vieux clou tout pourri
 
 -A Kadok ?!
+
+Ce n'est que deux heures plus tard que les charognards _croque-morts volants_ commencèrent à grignoter la dépouille exsangue du canari. Bien planqués, les aiguilleurs du ciel qui avaient fait leur boulot commen des manches,
+ne la ramenèrent pas quand les poulets en uniforme vinrent les cuisiner ... à propos d'un vol d'anchois.
+
