@@ -4,6 +4,7 @@
 
 Il était une fois un cadavre de _cannari_. Ce cadavre était tellement frais qu'il était encore chaud.
 En effet, il venait à peine de se faire renverser par un **dragon** qui ne lui avait pas cédé le passage.
+<<<<<<< HEAD
 Choqué, un aigle géant témoin de la scène appela l'agent du vol.
 
 ![Un cannari mort](http://www.adornato.com/the_dead_canaries/dead_canary_logo.jpg)
@@ -39,3 +40,9 @@ L'odeur salée de la mort lui rappelait sa tante, avec laquelle il aimait partag
 Soudain le __ciel__ s'ouvrit et des __trompettes__ se mirent à jouer. Un _**rayon de lumière**_ vint se poser sur le petit canari et celui-ci ouvrit le yeux. Il aggripa le bocal d'anchois et mangea goulûment.
 
 _Sans fautes (Je pense :))_
+=======
+
+Ce canari s'appelait *Johny*. Et c'est triste, parce qu'il était attendu pour un *concert d'enfer* !
+Concert auquel se rendait le dragon, qui attérit à côté de lui en *pleurant...*
+
+>>>>>>> ajout-bene
